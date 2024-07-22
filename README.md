@@ -29,5 +29,6 @@ The induction programme has been a perfect blend of knowledge sharing, interacti
 
 Thank you, Guru Nanak Dev Engineering College, for this amazing opportunity! I'm looking forward to continuing my journey of learning and exploration."
 
-#### 🌸THANK YOU FOR VISITING MY SITE.😊🙏  
+#### 🌸THANK YOU FOR VISITING MY SITE.😊🙏   
+
 
