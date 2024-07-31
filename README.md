@@ -16,7 +16,7 @@ Aspiring Electronics and Communication engineer
 ### Aspirations:  
 - To become skilled Communication network engineer and contribute to the development of robust and efficient communication system.
 
-### Current Engagement:
+### Induction programme:
 - Actively participating in the Induction Programme at Guru Nanak Dev Engineering College, Ludhiana - A Journey of Discovery!
 
 I'm thrilled to share my exciting experience at the induction programme in our college.This programme has been a treasure trove of knowledge, inspiration, and growth. I'm thoroughly enjoying every moment of it and gaining valuable insights into my field.
