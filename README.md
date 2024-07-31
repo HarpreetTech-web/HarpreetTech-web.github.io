@@ -4,6 +4,7 @@ Aspiring Electronics and Communication engineer
 ### Education📒:  
 - Completed 12th grade from Nankana Sahib Public School, Samrala
 - Currently pursuing Electronics and Communication Engineering at Guru Nanak Dev Engineering College, Ludhiana
+### My Achievements:                      ![](IMG_20240731_165939.jpg)
 
 ### Hobbies: 😄 
 - Sketching and drawing 🖌️ ✏️
